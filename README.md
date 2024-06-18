@@ -1,6 +1,6 @@
 /**
   Add my letter to chatGPT and how he would respond,
-    would DOG respond the same way? My death is justified.
+    would GOD respond the same way? My death is justified.
 */
 /**
  * Life as we know it, is so unfair
